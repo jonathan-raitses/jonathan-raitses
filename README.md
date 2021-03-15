@@ -1,4 +1,4 @@
-[![jonathanraitses](https://images.ctfassets.net/hygaqkpu9v0m/1LD1KRdMgjk3rIjLD76ViA/ebd342c1e4aed1dc7eaba2351aec3ca5/prf.jfif)][1]
+![jonathanraitses](https://images.ctfassets.net/hygaqkpu9v0m/1LD1KRdMgjk3rIjLD76ViA/ebd342c1e4aed1dc7eaba2351aec3ca5/prf.jfif)]
 
 Hey 👋🏻,
 
