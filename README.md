@@ -1,4 +1,4 @@
-![jonathanraitses](https://images.ctfassets.net/hygaqkpu9v0m/1LD1KRdMgjk3rIjLD76ViA/ebd342c1e4aed1dc7eaba2351aec3ca5/prf.jfif)
+![jonathanraitses](https://images.ctfassets.net/72h4nhk4ezi7/2rDc7YtnAlJw8knw4rkxTU/b477a08eb8743e6c61344571b9e5ec37/profile.jpg)
 
 Hey 👋🏻,
 
